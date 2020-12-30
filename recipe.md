@@ -1,0 +1,1 @@
+Crush some oreos in a bowl and mix it with some milk. Keep mixing until it fully becomes a liquid. Next put it in the microwave for 1 minute. Enjoy :)
